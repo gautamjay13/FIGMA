@@ -19,3 +19,8 @@
 #PROJECT - 5
 
 ![96045f9eec96d23a2613d74c0894471a](https://github.com/user-attachments/assets/7a872399-cd57-46f1-9ea7-aaa572db2532)
+
+#Project - 6
+
+![NIKE SHOES POSTER DESIGN](https://github.com/user-attachments/assets/78c1f702-8304-4e6b-997d-b71d1a681a7d)
+
